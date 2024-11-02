@@ -1,2 +1,2 @@
-# Salaar-Talha-worlk
+# Salaar-Talha-work
 Internship
